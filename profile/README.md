@@ -13,3 +13,6 @@ For the Republic of Ramona, now and forever.
 ## RULES
 1. a No spam messages (unless it falls under 1.b).
 1. b Spamming of the flag is allowed, the flag being the official flag of The Democratic People’s Republic of Ramona.
+
+
+> this is not a real Republic it is joke of sorts
